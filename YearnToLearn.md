@@ -1,7 +1,0 @@
-It is quite concerning, how I could turn my back on learning. My mind begins yearning over the wasted time I spent burning. - JPShag
-
-Cya in the cringe comp. 
-
-# Yearn2Learn
-
-### I am making this to compile a list of things I don't want to forget or things that I question, in which I will reasearch further and attempt to accertain its validity.
